@@ -1,1 +1,0 @@
-# Ultima-School-Exercicios
